@@ -1,0 +1,1 @@
+# Candida-albicans-UBC8-GID-E3-UBIQUITIN-LIGASE-
